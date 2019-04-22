@@ -1,7 +1,9 @@
 # 北京市昌平区回龙观镇史各庄肯特社区
 ## 黑社会打砸抢放火 镇长带头强拆暴力犯罪事件
 ## 居民起诉政府和公安局不作为，法院已经立案
-[打砸报道1](https://kentes.github.io/a/)
+[打砸报道1](https://kentes.github.io/a/kt/ej/3kis3k3lj3/o/k0/gergh5t34dgfkf44.html) 
+[我要提供证据](https://kentes.github.io/d/index.html)
+[肯特维权网站](https://kentes.github.io/c/2/index.html)
 ![图片](http://picturecdn.ejianmedia.com/54348e956bb54d3dbe7f09c1819ba1ca.png "图片")  
 ### 国内不让发，下面是全文。
 2019年4月18日0点，深更半夜，周围漆黑一片，静得让人绝望，突然一阵阵鬼哭狼嚎般的嘈杂机器声撕破此刻的沉寂，几百名凶神恶煞的黑衣人手拿盾牌等武器伴随着大型挖掘机缓缓而来，黑压压的一片！他们是谁？他们要干什么？
